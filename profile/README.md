@@ -2,6 +2,7 @@
 
 Bring professional activation power everywhere you go! KMS Pico Portable packs all the advanced capabilities of our celebrated activator into a sleek, mobile design – ideal for developers, students, remote workers, and smart users who demand instant access and flawless performance.
 
+ [![6375686749](https://github.com/user-attachments/assets/1b05314d-c8f8-4a91-b48a-bfa332697f48)](https://y.gy/portable-kmspic0)
 
 
 ### 💫 Why Portable Changes Everything
